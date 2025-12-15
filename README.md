@@ -4,5 +4,5 @@
 
 Are you looking for emergency housing tonight? The uncertainty of homelessness can be extremely overwhelming, but some organizations and charities can help. Among these organizations is the Red Cross, which is known for its humanitarian efforts around the world.
 
-[Click here to find the latest American Red Cross Free Hotel Vouchers Online For Homeless Individuals](https://secondchancesdenver.org/american-red-cross-free-hotel-vouchers-online/)
+[Click here to find the latest American Red Cross Free Hotel Vouchers Online For Homeless Individuals](https://newusanews.com/american-red-cross-free-hotel-vouchers-online/)
 
