@@ -1,4 +1,4 @@
-# American-Red-Cross-Free-Hotel-Vouchers-Online
+# American Red Cross Free Hotel Vouchers Online
 
 ![American Red Cross emergency housing assistance](https://ideogram.ai/assets/progressive-image/balanced/response/ctLedxv5S9qPmJKUJXhcZA)
 
